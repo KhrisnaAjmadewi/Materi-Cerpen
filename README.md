@@ -1,2 +1,0 @@
-# Materi-Cerpen
-Selamat datang!
